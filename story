@@ -1,1 +1,2 @@
-There was once a brave knighht who loved a princess. She was trapped inside of the Dragon's castle. The knight tried many times to rescue her, but got badly injured. 
+There was once a brave knighht who loved a princess. She was trapped inside of the Dragon's castle. The knight tried many times to rescue her, but got badly injured.
+There was an almighty Healer who could help the knight. 
